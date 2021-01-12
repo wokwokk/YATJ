@@ -1,4 +1,4 @@
-# [与爱同居第一季高清百度云](https://travis-ci.org/Qix-/color.svg?branch=master)](https://travis-ci.org/Qix-/color)
+# [[与爱同居第一季高清百度云](https://travis-ci.org/Qix-/color.svg?branch=master)](https://travis-ci.org/Qix-/color)
 
 点这里进入店铺购买获取
 >>>>https://www.ibaoli.org/details/BE8BE9CE
