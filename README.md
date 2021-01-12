@@ -8,4 +8,4 @@
 
 # 与爱同居1/2小说未删减
 点这里进入店铺购买获取
->>>>https://www.ibaoli.org/details/877A9DF3
+>>>>https://www.ibaoli.org/details/667112E9
