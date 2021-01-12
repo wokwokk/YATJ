@@ -1,4 +1,4 @@
-# 与爱同居第一季高清百度云color:#147258;
+# 与爱同居第一季高清百度云
 点这里进入店铺购买获取
 >>>>https://www.ibaoli.org/details/BE8BE9CE
 
